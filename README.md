@@ -1,1 +1,0 @@
-# VeftyCZ.github.io
